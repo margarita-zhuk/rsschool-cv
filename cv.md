@@ -23,4 +23,4 @@ Learning new thing is inspiring. I also think that my brain is capable to genera
 
 **8.** Current level — intermediate.
 _Speaking practice_: have been working in Italy as an au-pair for English for 3 years. 
-Feel more free to speak than reading professional literature.
+Feel more free to speak than reading professional literature. 
