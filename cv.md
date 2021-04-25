@@ -21,6 +21,4 @@ Learning new thing is inspiring. I also think that my brain is capable to genera
 **7.** _Russian State Social University_ degree in marketing/management.
 1,5 year (not finished degree) of psychology in RSSU.
 
-**8.** Current level — intermediate.
-_Speaking practice_: have been working in Italy as an au-pair for English for 3 years. 
-Feel more free to speak than reading professional literature.
+
